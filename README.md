@@ -3,6 +3,7 @@
 - 🌱 I’m currently learning everything help
 - 💞️ I’m looking to collaborate on idk
 - 📫 How to reach me: this ig (you can conatct me on my socials but my socials arent about code)
+- YOU KNOW WHAT JUST CONTACT ME WITH stuuupidfish@gmail.com
 - 😄 Pronouns: she/her
 - ⚡ Fun fact: i had hamster namedc hamsphere
 
