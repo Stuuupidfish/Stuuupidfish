@@ -6,7 +6,7 @@
 - 😄 Pronouns: she/her
 - ⚡ Fun fact: i had hamster namedc hamsphere
 
-I actually draw okay
+I actually draw okay so dont check my social media if u dont care about that
 
 <!---
 Stuuupidfish/Stuuupidfish is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
