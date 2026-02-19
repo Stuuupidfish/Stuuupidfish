@@ -3,6 +3,7 @@ Math + CS student at NYU yippeee
 -  she/her
 -  i had hamster named hamsphere
 -  i really like terraria
+-  **check out [my gists](https://gist.github.com/Stuuupidfish)**
 
 I'm also an artist so [check out my IG if u wanna see my artwork](https://www.instagram.com/stuuupidfish/)
 <!---
