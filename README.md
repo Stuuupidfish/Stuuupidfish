@@ -3,7 +3,7 @@ Math + CS student at NYU yippeee <img width="500" height="30" alt="Blue_Puffle" 
 -  she/her 
 -  i had hamster named hamsphere
 -  i really like terraria and a bunch of other indie games like cuphead and hollow knight
--  my favorite languages are Java and C# but i always make projects in python cuz its easier to implement APIs with 
+-  my favorite languages to work with are Java / C# (i mean like theyre practically the same)
 -  i can never stick to a sport but right now i am doing taekwondo and its pretty fun
 -  i dont read enough but a good short story to read is notes from underground by dostoeyevsky
 -  currently, i am learning C
